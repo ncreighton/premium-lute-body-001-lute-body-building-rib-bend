@@ -1,0 +1,2 @@
+# premium-lute-body-001-lute-body-building-rib-bend
+Stop losing track of your lute body proportions and rib bending sequences. The Lute Body Building &amp; Rib Bend Craft Studio is your dedicated Notion workspace to design, track, and execute every step of crafting a lute body — from rib selection to final assembly.  This template solves the chaos of managing multiple lute projects with scattered notes
